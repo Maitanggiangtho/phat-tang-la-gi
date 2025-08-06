@@ -10,7 +10,7 @@
 
 # 
 
-
+Xem thêm: https://maitanggiangtho.vn/phat-tang-la-gi/
 
 # Đây là một trong những nghi thức quan trọng, được xem như lời thông báo chính thức rằng gia đình đang có tang sự, đồng thời thể hiện đạo lý “uống nước nhớ nguồn” và chữ hiếu đối với người mất.
 
